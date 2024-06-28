@@ -1,6 +1,0 @@
-- 👋 Hi, I’m @voigok
-- 👀 I’m interested in boobs
-- 🌱 I’m currently learning boobs language
-- 💞️ I’m looking to collaborate on my mom
-- 😄 Pronouns: helicoptero/combate
-- ⚡ Fun fact: i love boobs
